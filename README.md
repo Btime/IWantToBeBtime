@@ -2,7 +2,7 @@
 
 Btime is a startup that has been in the market for three years, changing the way people work.
 
-Our solution for managing field teams is web and mobile, we optimize the entire operational flow of companies and everything in real time. With the results achieved in recent months, we were selected in two acceleration programs and recently, Plug n play (Silicon Valley) and Porto Seguro invested in Btime. To get an idea in the last 6 months we have grown 300% and we are looking for people who want to grow along with us;)
+Our solution for managing field teams is web and mobile, we optimize the entire operational flow of companies and everything in real time. With the results achieved in recent months, we were selected in two acceleration programs and recently, Plug and Play (Silicon Valley) and Porto Seguro invested in Btime. To get an idea in the last 6 months we have grown 300% and we are looking for people who want to grow along with us;)
 
 We offer a relaxed environment where all members have the freedom and responsibility to create the best possible solutions, with the support of all members, from the trainee to the CEO.
 
